@@ -1,3 +1,3 @@
-![Image 4-15-21 at 4 57 PM](https://user-images.githubusercontent.com/63212572/116038745-b15fb000-a61e-11eb-8b56-7dfff1b17cd1.jpg)
+![Apr 25, Doc 1](https://user-images.githubusercontent.com/63212572/116038863-dbb16d80-a61e-11eb-9f2e-ce9191e19fcd.jpg)
 
 # homework3
